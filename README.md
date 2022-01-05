@@ -6,4 +6,5 @@ say a prayer as i lay in bed still lazy to get up
 read a portion of scripture
 get my phone and check the time after i doze off again
 get up and put water in the kettle to boil
+i brush my hair
 wake up n go the bathroom to brush my teeth

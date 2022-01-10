@@ -2,6 +2,7 @@
 how my normal ordinary day goes like
 i wake up after three snoozes
 check the time one more time
+Atend meetings
 say a prayer as i lay in bed still lazy to get up
 read a portion of scripture
 get my phone and check the time after i doze off again

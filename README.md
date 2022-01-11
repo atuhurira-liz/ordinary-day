@@ -11,3 +11,4 @@ i brush my hair
 wake up n go the bathroom to brush my teeth
 shower
 dress up
+
